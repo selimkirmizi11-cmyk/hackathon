@@ -45,3 +45,25 @@ Toplanan bu ürünler, yeni "ReKumaş" hammaddesi olur. Ürün getirene, yeni al
 
 Online platformumuz, tüketicileri "sürdürülebilir moda" konusunda eğitir. Kumaş türlerinin çevresel etkileri, doğru bakım ipuçları gibi içerikler paylaşılır.
 
+Çevresel Faydalar:
+Atık Azaltımı: Tekstil atıklarının çöplüklerde ve yakma fırınlarında son bulmasını engeller.
+
+Kaynak Tasarrufu: Ham madde (pamuk, petrol) çıkarma ve işleme ihtiyacını büyük ölçüde azaltır, su ve enerji tasarrufu sağlar.
+
+Kimyasal Kirliliğin Önüne Geçme: Geleneksel boya ve kumaş üretimindeki zehirli kimyasalların kullanımını minimize eder.
+
+Karbon Ayak İzini Küçültme: Tedarik zincirini kısaltır ve enerji verimli üretimle sera gazı emisyonlarını düşürür.
+
+Neden Bu Fikir Başarılı Olur?
+Trendlere Uyumluluk: Tüketicilerde, özellikle Z ve Y kuşağında, çevre bilinci hızla yükselen bir değer.
+
+Hikaye Anlatımı: "ReKumaş" ve "Döngü Atölyesi" güçlü bir marka hikayesine sahip. Tüketici, sadece bir kıyafet değil, bir "değer" ve "çözümün parçası" satın alır.
+
+Çok Yönlü Gelir Modeli: Gelir kaynakları çeşitlidir: Ürün satışı, kiralama ücretleri, onarım hizmet bedelleri, kurumsal iş birlikleri (şirketlerin üniforma geri dönüşümü gibi).
+
+Döngüsellik: Sistem, kendi hammaddesini kendi yaratarak sürdürülebilir bir iş modeli oluşturur.
+
+Özetle, "Döngü Atölyesi" ve onun kalbindeki "ReKumaş" ürünü, tekstilin çevresel zararını kökten değiştirebilecek, tüketiciyi de sürece dahil eden bütüncül ve yenilikçi bir çözümdür.
+
+
+
